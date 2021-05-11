@@ -1,1 +1,1 @@
-# New-Beginning
+# Serenity Coin
